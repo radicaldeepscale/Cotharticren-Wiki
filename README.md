@@ -12,11 +12,17 @@ ________________
 
 ![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/Cotharticren.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/ArcLake.jpg)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/arcLake.jpg)
 ________________
 ![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/dete.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/Mantis.jpg)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/mantis.jpg)
+________________
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/catalyst.jpg)
+________________
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/logistics.jpg)
+________________
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/nozzle.jpg)
 ________________
 ________________
 
