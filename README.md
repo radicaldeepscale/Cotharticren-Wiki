@@ -12,7 +12,7 @@ ________________
 
 ![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/Cotharticren.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/arcLake.jpg)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/arclake.jpg)
 ________________
 ![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/dete.jpg)
 ________________
