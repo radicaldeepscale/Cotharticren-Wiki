@@ -10,7 +10,7 @@ ________________
 
 
 
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/C2694259-D596-4361-9C91-FD23F3A21798.jpeg)
+![Cotharticren-Wiki](1286x0w(1).png)
 ________________
 ![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/C145AF0B-49B9-418C-BCFB-E1381785BEFF.png)
 ________________
