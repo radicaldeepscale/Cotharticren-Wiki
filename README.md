@@ -10,13 +10,13 @@ ________________
 
 
 
-![Cotharticren-Wiki](1286x0w(1).png)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/Cotharticren.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/C145AF0B-49B9-418C-BCFB-E1381785BEFF.png)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/ArcLake.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/B51E42C4-4DF6-4B8C-B8B5-8421A14C541F.png)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/dete.jpg)
 ________________
-![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/519BADF3-FB73-41B2-92E5-0E5C3890B700.png)
+![Cotharticren-Wiki](https://github.com/radicaldeepscale/Cotharticren-Wiki/blob/main/Mantis.jpg)
 ________________
 ________________
 
